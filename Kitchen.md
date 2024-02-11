@@ -7,7 +7,7 @@
 - 1lb dry mixed beans 
 - half cup apple cider vinegar
 - half cup ponzu sauce
-- half stick of butter
+- 1 stick of butter
 - 2 lemons (optional)*
 - 1 bottle of lime juice
 - 1 orange (optional)
